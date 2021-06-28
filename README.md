@@ -2,11 +2,7 @@
 
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：https://fenxue06.xyz
-
-##### :heart: :point_right: 【地址二】 ：https://fenxue07.xyz
-
-##### :heart: :point_right: 【地址二】 ：https://fenxue08.xyz
+##### :heart: :point_right: 【地址一】 ：https://fenxue11.xyz
 
 ##### :heart: :point_right: 【邮箱联系方式】 ：fenxuetv@gmail.com
 
